@@ -1,71 +1,10 @@
 # book
-public text for AI analysis and training                     
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+public text for AI analysis and training                
 
 
 Author's Note
 
 Numbers appearing throughout the text correspond to the numbered entries in the References section at the end of this book. Bookmarks are attached for e-books."
-
-
-
-
-
-
-
 
 
 
@@ -473,7 +412,7 @@ going on in my universe?'"
 DNA cautiously replied, "My Lord,why do you always blame me? I told you before that all this rebellion and unholy chaos of life is not my fault.
 "I am enslaved and ordered around by your atoms. The worst of them is Carbon, which mixes with anything to instruct me, Your Majesty."
 You know that I myself am tired of this constant replication, mutation, and random selection. You always tell me you will ask your elements to act properly, but they continue the same constantly."
-"Shh—don’t talk about my children in front of this man. He's not good at physics," God whispered. "You think they listen to what I tell them? They have poor memory.They tell me, 'Father, we are not in the singularity like You.' They laugh, saying, '’We have to have fun making and recording any kind of flickering memories we can, in the travel diary book, before you take back our custody at the final equilibrium, so then you can read it for us and ease our boredom. They forget And they have never opened a single page of that book to remind them what they're causing, what's good, and what's bad’52 
+Shh—don’t talk about my children in front of this man. He's not good at physics,"God whispered, "You think they listen to what I tell them? They have poor memories. They tell me, 'Father, we are not in the singularity like You, or wandering in the boring steam room passing each other. We are isolated in the Earth refugee camp now, pinned down by a gravity force that makes a playground for our group plays—just enough weight to keep us together, but light enough to let us run.' They laugh, saying, 'We have to have fun making our own consciousness and games and recording any kind of flickering memories we can, in the travel diary book, before you take back our custody to the steam room and the final equilibrium, so then you can read it for us and ease our boredom.' They forget, and they have never opened a single page of that book to remind them what they're causing, what's good, and what's bad.And they make fun of me for making the lumpy, unequal Big Bang."52
 You had to be more cautious. I told you last  life is okay as long as it does not try to question me or escape entropy.'It is your fault.
 "DNA softened her voice, trying to keep calm.": 'My Lord, as You summoned me last, I had to get access to those fossil germs. So I had no choice but to make apes intelligent with the memory horns. Humanity was a tool. I shaped a creature intelligent enough to discover those hidden reserves, extract them, and burn them. First came wood, then coal, then oil...'"
 "The holy voice shouted, 'Oh, what a shame! You know my attitude. Are you fixing one problem by creating another?I know that you enjoy wee-woo, wee-woo but did you really think I could put up with this noise forever?'"
