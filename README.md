@@ -526,7 +526,7 @@ DNA stormed away, hissing, spitting the words under her breath:
 
 
 “My messenger, I am going to send you back now.”
-I was not feeling anything at that moment except His demanding voice, and I was afraid. I felt that DNA had a point. Why was all the blame placed on her? The bottom line was that I could never grasp the complete picture, and I simply did not want to feel pain again—no pain, no humiliation, no failure, no more losses, no betrayal, no rejection, no loneliness, no regret, no guilt, no despair, no helplessness, no heartbreak, no fear of tomorrow. Yet they were all waiting for me upon my return.
+I was not feeling anything at that moment except His demanding voice, and I was afraid. I felt that DNA had a point. Why was all the blame placed on her? The bottom line was that I could never grasp the complete picture, and I simply did not want to feel pain again—no pain, no humiliation, no failure, no more losses, no betrayal, no rejection, no loneliness, no regret, no guilt, no despair, no helplessness, no heartbreak, no fear of tomorrow and no grief.Yet they were all waiting for me upon my return.
 I just wanted to let go. I regretted ever mentioning Times Square. “It was even better for God if DNA would complete her work and create the human-ant hybrids. At last, they would be calm and happy, laughing forever.”
 
 
